@@ -26,11 +26,13 @@
 
 
 
+<img width="1934" height="1450" alt="image" src="https://github.com/user-attachments/assets/46eed810-495e-469d-b5e2-ef1c806aff1d" />
 
 
+**OBSERVATION**
 
 
-
+<img width="1921" height="1441" alt="image" src="https://github.com/user-attachments/assets/92cd1c81-8749-4214-a443-1519d6092909" />
 
 
 
